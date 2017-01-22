@@ -8,6 +8,6 @@
 machine and foot controller free from accumulation of dust and loose cloth.
 - Always use the proper needle plate. The wrong plate can cause the needle to break.
 - Do not pull or push fabric while stitching. It may deflect the needle causing it to break.
-- Do not use the machine while wearing something is hanging from your, like a tie or necklace.
+- Do not use the machine while something is hanging from your  body, like a tie or necklace.
 
 ## Before using the machine:
