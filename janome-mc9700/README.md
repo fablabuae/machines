@@ -11,3 +11,4 @@ machine and foot controller free from accumulation of dust and loose cloth.
 - Do not use the machine while something is hanging from your  body, like a tie or necklace.
 
 ## Before using the machine:
+There are a few things that you need to know before using this machine, [here](https://www.youtube.com/watch?v=3HzTq1B65eQ) is a video that will help you with that.
